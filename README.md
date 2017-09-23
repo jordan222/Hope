@@ -1,1 +1,1 @@
-# Hope and Insperation
+# Hope and Inspiration
